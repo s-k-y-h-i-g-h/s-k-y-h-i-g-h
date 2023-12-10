@@ -7,4 +7,4 @@ I am also the owner and a moderator of three Discord servers:
 - [Blueprint](https://discord.gg/6vmC5Vfr)
 - [UK Nootropics](https://discord.gg/Cbjgh6K4)
 
-Thanks for taking an interest in me and I wish you a great daY ^_^
+Thanks for taking an interest in me and I wish you a great day ^_^
